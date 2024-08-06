@@ -9,3 +9,5 @@ Meu nome Lucas Santos, mais pode me chamar de planta :V
 ### Você pode entrar em contado comigo 🤳
 
 00001126324309sp@al.educacao.sp.gov.br
+
+![.](https://media.tenor.com/KGrsbqc-zDYAAAAi/cateatchips.gif)
